@@ -1,4 +1,4 @@
 # Cringe
 
 urmom
-is susm :)
+is sus :)
