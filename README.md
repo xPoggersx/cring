@@ -1,2 +1,2 @@
-# Cring
+# Cringe
 urmom
